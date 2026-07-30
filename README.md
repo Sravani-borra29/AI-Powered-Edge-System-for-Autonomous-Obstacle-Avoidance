@@ -212,5 +212,5 @@ Interested in:
 
 Watch the project demonstration here:
 
-https://youtu.be/https://https://youtube.com/shorts/nRop8UscDEo?feature=share
+https://youtube.com/shorts/nRop8UscDEo?si=hIRpKj7W5dtrrtTp
 
